@@ -9,8 +9,6 @@
 
 - 📝 I write some articles on [https://sangitasingh2020.blogspot.com/](https://sangitasingh2020.blogspot.com/)
 
-- 📫 How to reach me **rsangitasingh28rk@gmail.com**
-
 - ⚡ Fun fact **I am cool**
 
 <h3 align="left">Connect with me:</h3>
